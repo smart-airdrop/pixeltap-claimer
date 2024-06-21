@@ -1,6 +1,6 @@
 # PixelTap by Pixelverse - Auto Claim Bot
 
-Referral link: [PixelTap by Pixelverse]([https://t.me/smartairdrop2120](https://t.me/pixelversexyzbot?start=5914982564))
+Referral link: [PixelTap by Pixelverse](https://t.me/pixelversexyzbot?start=5914982564)
 
 ## Telegram Group
 
